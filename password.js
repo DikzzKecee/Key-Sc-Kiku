@@ -1,1 +1,1 @@
-["DikzzKecee"]
+["DikzzKecee", "bagus beli lagi yah"]
